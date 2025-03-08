@@ -1,3 +1,3 @@
 # Nepsix
 nepsix assignments and assesments
-nepsix really taught 
+nepsix really taught me
